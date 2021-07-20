@@ -1,0 +1,1 @@
+a rich cocoa-flavored cake with a distinctive reddish color, typically prepared as a layer cake with buttercream or cream cheese icing.
